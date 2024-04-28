@@ -3,8 +3,8 @@ TreeGoat or Click Created, depending where you know me from, college student who
 
 # Socials
 TikTok - (link)
-Codedex - (link)
-X - (link)
+!Codedex - (link)
+!X - (link)
 
 ## #30NitesOfCode:
   [Check out my progress!](https://www.codedex.io/@treegoat1/30-nites-of-code)  
